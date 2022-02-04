@@ -1,3 +1,4 @@
+UPDATE: FULL GAME IS ON GAMEJOLT LETS GO
 # AAFO
 The full Alpha and f**king omega game!
 This is where the full game and the coming dlc will be
